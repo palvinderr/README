@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: PALVINDER SINGH
 I am currently international student in Japan.<br>I am currently learning more about programming languages.<br>I am looking for collobrate on Youtube.<br>Ask me about Career planning or any tech-related stuff.<br>How to reach me: Linkedin- @palvindersiingh<br>Pronauns: He/His<br>Fun facts: I admire I m busy most of the time.
 
 
